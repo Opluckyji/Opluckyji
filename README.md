@@ -1,5 +1,3 @@
-# T.S. BRAND
-# TRICKS-BY-SATISH
-https://youtu.be/sA6jmjtvSAU?si=EwvdvbSy-ROEGQin
-
+# PR1NC3 THAKUR
+# TRICKS-BY-PR1NC3
 ![Alt Text](https://i.imgur.com/GItqLpN.jpeg)
